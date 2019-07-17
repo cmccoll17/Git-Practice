@@ -1,6 +1,6 @@
 # Art History
 ## Intro to Art History 101
-*Crystal McColl*
+*Crystal*
 
 **Required Reading**
 
